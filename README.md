@@ -1,0 +1,1 @@
+# 1TSCG---EXEMPLO.git-2024-
